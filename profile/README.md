@@ -1,3 +1,3 @@
 # Welcome to Extensive Weird 👋
 
-![istockphoto-182792016-170667a](https://github.com/extensive-weird/.github/assets/72724141/f1b292e7-a263-4e1e-b9f5-d434ddc7fbb4)
+![HD-wallpaper-beautiful-earth-planet-universe-space-earth-star (1)](https://github.com/extensive-weird/.github/assets/72724141/df8ff382-7a99-48ab-9341-c8a75275b964)
